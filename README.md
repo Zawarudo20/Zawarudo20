@@ -6,4 +6,4 @@
   </a>
 </div>
 
-# My itch.io page 🫣 : https://zawarudo20.itch.io/
+# My itch.io page  : https://zawarudo20.itch.io/
